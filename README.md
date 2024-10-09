@@ -30,4 +30,4 @@ We invite developers, agricultural experts, and community members to join us in 
 
 Contact:
 
-[Your contact email]
+agriconnect_ht@protonme.com
